@@ -6,5 +6,5 @@
 </p> 
 <p align="center">
 
-  <a href="https://github.com/Cakhaho"
+  <a href="https://github.com/Cakhaho"><img src="https://github-readme-stats.vercel.app/api?username=Cakhaho&hide=contribs,prs
 </p>
