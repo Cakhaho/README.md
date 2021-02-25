@@ -34,6 +34,9 @@
 
 * [`telegram Admin`](https://t.me/gwcumagabuttt)
 
+#Donasi
+* [`Saweria`](https://saweria.co/Cakhaho)
+* [`Trakteer`](https://trakteer.id/cakhaho)
 
 
 
