@@ -37,6 +37,7 @@
 #Donasi
 * [`Saweria`](https://saweria.co/Cakhaho)
 * [`Trakteer`](https://trakteer.id/cakhaho)
+* [`ko-fi`](https://ko-fi.com/cakhaho)
 
 
 
