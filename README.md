@@ -25,6 +25,29 @@
   <a href="https://github.com/ryo-ma/github-profile-trophy"><img src="https://github-profile-trophy.vercel.app/?username=Cakhaho&theme=onedark" /></a>
 
 </p>
+</p> 
+
+ #sosial media
+
+* [`WhatsApp Admin `](https://wa.me/6281281872699)
+
+* [`ShizukaAPIs `](https://api.shizukaa.xyz/)
+
+* [`Website BOT`](https://shizukaa.xyz)
+
+</p> 
+
+ #sosial media
+ 
+* [`Instagram Admin `](https://instagram.com/cak_haho)
+* [`telegram Admin`](https://t.me/gwcumagabuttt)
+
+
+ 
+
+
+
+ 
 
  
 
