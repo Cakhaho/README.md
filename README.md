@@ -26,22 +26,24 @@
 
 </p>
 </p> 
+#sosial media
 
- #sosial media
-
-* [`WhatsApp Admin `](https://wa.me/6281281872699)
-
-* [`ShizukaAPIs `](https://api.shizukaa.xyz/)
-
-* [`Website BOT`](https://shizukaa.xyz)
-
-</p> 
-
- #sosial media
  
+
 * [`Instagram Admin `](https://instagram.com/cak_haho)
+
 * [`telegram Admin`](https://t.me/gwcumagabuttt)
 
+
+
+
+
+
+
+
+
+
+ 
 
  
 
